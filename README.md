@@ -11,4 +11,6 @@
 i smoke weed<br>
   <img style="width: %; height: %" src="https://file.garden/ZwwJTXO4W1VL_e-Z/backgrounds/budcat.png"> <br>
   dni if that bothers u <br>
+  <br>
+    <sub>(graves dbls dni sorry lol)</sub> <br>
 <p align="center">
